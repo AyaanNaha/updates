@@ -1,1 +1,1 @@
-# updates
+Updates for logan's accelerate squad
